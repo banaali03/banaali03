@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=fadihattab&label=Profile+Views)
+![](https://komarev.com/ghpvc/?username=banaali03&label=Profile+Views)
 
 # Hi, I'm Bana Amaireh 👋
 
