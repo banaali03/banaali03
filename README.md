@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=fadihattab&label=Profile+Views)
 
-# Hi, I'm Fadi Hattab 👋
+# Hi, I'm Bana Amaireh 👋
 
 ## AWS Solutions Architect | Full Stack Developer | IT Trainer
 
